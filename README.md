@@ -1,15 +1,15 @@
-###🙋‍♂️ Bem-vindo ao meu perfil!
+# ⚓ Bem-vindo ao meu perfil! ⚓
 
-Meu nome é Gabriel Gonçalves, ou conhecido
 
-Here are some ideas to get you started:
+## 🚩 Gabriel Gonçalves de Almeida 🚩
+- Tenho 15 anos
+- Pelos amigos, mais conhecido como Walter
+- Estudo no Colégio Estadual Cívico Militar D.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+## 📫 Entre em contato comigo 📫
+- Email: gabrielg.dealmeida2007@gmail.com
+- TikTok: walterd.g.
+- Youtube: [Walter]()
+- Discord: [Walter8474]()
 
+### Por enquanto é isso, vlw!
