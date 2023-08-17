@@ -9,7 +9,7 @@
 ## 📫 Entre em contato comigo 📫
 - Email: gabrielg.dealmeida2007@gmail.com
 - TikTok: walterd.g.
-- Youtube: [Walter]()
+- Youtube: [Walter](https://www.youtube.com/@walt2493)
 - Discord: [Walter8474]()
 
 ### Por enquanto é isso, vlw!
